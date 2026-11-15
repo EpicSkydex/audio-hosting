@@ -1,2 +1,2 @@
 # audio-hosting
-Just Music for my neocities.org website and other no copy right!!!
+Just Music for my neocities.org and tebex.io website (no copy right!)
